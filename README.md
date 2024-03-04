@@ -1,6 +1,6 @@
 - 👋 Olá! Sou @marcosaslima67
 - 👀 Estou interessado em segurança virtual
-- 🌱 Atualmente quero aprender, motivado pelo cançaço de influência ocidental (EUA).
+- 🌱 Atualmente quero aprender, motivado pelo cansaço de influência ocidental (EUA).
 - 💞️ I’m looking to collaborate on ...
 - 📫 Entre em contato comigo em marcosaslima@proton.me
 - 😄 Pronouns: ...
